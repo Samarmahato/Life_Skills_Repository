@@ -49,3 +49,8 @@ A wide range of abilities are required for acting, including a sharp imagination
 - Show empathy and understanding to the experiences, views, and backgrounds of others. Steer clear of making offensive jokes or disparaging remarks based on someone's gender, race, ethnicity, religion, or any other trait.
 
 - Educate yourself: Keep learning about diversity, inclusivity, and social issues. To encourage a courteous and inclusive environment, keep yourself knowledgeable on proper actions and language.
+- 
+## Learning Resources 
+
+- [YouTube](https://www.youtube.com/watch?v=o3FhoCz-FbA)
+
